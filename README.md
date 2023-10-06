@@ -12,3 +12,4 @@
 ## Updates and Changelogs:
 ### Game is in development.
 ### For more information follow Flaggshipp (@flaggshipp) on Instagram and TikTok
+<a href="http://flaggshipp.org/granny4.html"> Or open Official Granny 4 Site </a>
