@@ -7,6 +7,8 @@
 </p>
 
 <br></br>
+<br></br>
+
 ## Updates and Changelogs:
 ### Game is in development.
 ### For more information follow Flaggshipp (@flaggshipp) on Instagram and TikTok
