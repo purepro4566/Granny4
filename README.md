@@ -13,3 +13,5 @@
 ### Game is in development.
 ### For more information follow Flaggshipp (@flaggshipp) on Instagram and TikTok
 <a href="http://store.flaggshipp.org/granny4.html"> Or check out the official site </a>
+
+### © Copyright: Flaggshipp Owner U_ShowcaseDev. All rights reserverd.
