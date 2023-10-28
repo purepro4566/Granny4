@@ -6,8 +6,8 @@
   <b > Let's revive Granny! </b>
 </p>
 
-<br></br>
-<br></br>
+<br>
+<br>
 
 ## Updates and Changelogs:
 ### Game is in development.
